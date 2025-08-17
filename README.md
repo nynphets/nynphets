@@ -1,10 +1,10 @@
 ### <p align="center"> see [here](https://patreon.com/nynphet) for english
 ---
 ### <p align="center">  / about me / 
-<p align="center"> [ кон : 18 лет ]
+<p align="center"> [ Поля : 18 лет ]
 <br/>multifandom artist
 
- <p align="center">пиши мне плз!! я учу русский язык)
+ <p align="center">пиши мне !! я учу русский язык)
 
 <p align="center">я хочу завести друзей и играть в игры!!
 
@@ -25,7 +25,7 @@
   <br/>ask for my steam or roblox usernames :3
 
 
-<p align="center"> я не чувствителен, говори со мной обо всем
+<p align="center"> 
 
  ---
   
