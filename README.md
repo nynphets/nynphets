@@ -5,7 +5,7 @@
 
 
 
-<p align="center"> i dont bite i prommy 
+<p align="center"> i dont bite i prommy !!!
 <p align="center">pro/anti discourse is annoying as fuck
  <p align="center">я изучаю русский язык . давай пиши мне *wink*
 <p align="center">
